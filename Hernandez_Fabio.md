@@ -1,0 +1,1 @@
+# ya le di sollucion a ese pedillo 🥸
